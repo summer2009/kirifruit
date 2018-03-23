@@ -1,4 +1,4 @@
-# kirifruit 猕猴桃
+# kiwifruit 猕猴桃
 
 俗称：奇异果
 　　学名：猕猴桃
