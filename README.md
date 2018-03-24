@@ -26,7 +26,7 @@
 + [关注我们]()
 + 扫码访问
 
-![扫码访问我们的网站](/img/addressQR.png)
+![扫码访问我们的网站](/img/addressQR01.png)
 
 ##  猕猴桃（kiwifruit）小知识
 俗称：奇异果
