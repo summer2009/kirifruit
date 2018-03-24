@@ -1,6 +1,6 @@
 #  我吃过最好吃的猕猴桃！
 ----
-![实拍](kiwifuit.jpeg)
+![实拍](/img/kiwifuit.jpeg)
 
 ## 特点  
 
