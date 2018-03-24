@@ -2,13 +2,13 @@
 ----
 ![实拍](kiwifuit.jpeg)
 
-# 特点[详情](detail_character.md)
+# 特点  [详情](detail_character.md)
 + 果香浓郁
 + 汁水满溢
 + 甜酸可口
 + 绿色种植
 
-# 产地[详情](region.md)
+# 产地  [详情](region.md)
 + 秦巴山区
 + 历史文化名城——我们汉中
 + 出使西域张骞故里——城固
