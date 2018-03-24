@@ -2,7 +2,7 @@
 ----
 ![实拍](kiwifuit.jpeg)
 
-## 特点  
+## 特点  [详情](detail_character.md) 
 + 果香浓郁
 + 汁水满溢
 + 甜酸可口
