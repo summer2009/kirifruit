@@ -1,3 +1,5 @@
 [翠香猕猴桃品种介绍](https://www.ttxn.com/art/11885.html)
 
 [为什么大家都喜欢吃翠香猕猴桃](https://www.jianshu.com/p/cba1df38f1a8)
+
+[当今世界猕猴桃的发展现状与趋势](https://www.pujiangmihoutao.com/23026.html)
