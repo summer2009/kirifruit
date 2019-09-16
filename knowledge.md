@@ -7,3 +7,5 @@
 [2017猕猴桃发展报告](http://www.sohu.com/a/230214176_230053)
 
 [留洋104年，奇异果竟然是中国亲生的？](http://www.sohu.com/a/231479023_100171032)
+
+[当你吃猕猴桃的时候，想过用它的籽粒再种出来吗](https://baijiahao.baidu.com/s?id=1614736580182827188&wfr=spider&for=pc)
