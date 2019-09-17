@@ -14,6 +14,8 @@
 
 [陕西汉中是中华系猕猴桃原产地和猕猴桃最佳适生区](https://www.pujiangmihoutao.com/36500.html)
 
+[中国猕猴桃简史VS奇异果进化史](http://dy.163.com/v2/article/detail/EET0BP6N0519U559.html)
+
 
 ***************************
 [城固禾和](http://hanzhong.hsw.cn/system/2019/0907/22935.shtml)
