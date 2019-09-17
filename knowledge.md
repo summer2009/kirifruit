@@ -1,3 +1,4 @@
+
 [翠香猕猴桃品种介绍](https://www.ttxn.com/art/11885.html)
 
 [为什么大家都喜欢吃翠香猕猴桃](https://www.jianshu.com/p/cba1df38f1a8)
@@ -9,3 +10,7 @@
 [留洋104年，奇异果竟然是中国亲生的？](http://www.sohu.com/a/231479023_100171032)
 
 [当你吃猕猴桃的时候，想过用它的籽粒再种出来吗](https://baijiahao.baidu.com/s?id=1614736580182827188&wfr=spider&for=pc)
+
+
+***************************
+[城固和合](http://hanzhong.hsw.cn/system/2019/0907/22935.shtml)
