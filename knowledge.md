@@ -16,6 +16,8 @@
 
 [中国猕猴桃简史VS奇异果进化史](http://dy.163.com/v2/article/detail/EET0BP6N0519U559.html)
 
+[猕猴桃 现代诗哥](https://www.sohu.com/a/164547946_648626)
+
 
 ***************************
 [城固禾和](http://hanzhong.hsw.cn/system/2019/0907/22935.shtml)
