@@ -11,6 +11,8 @@
 
 [当你吃猕猴桃的时候，想过用它的籽粒再种出来吗](https://baijiahao.baidu.com/s?id=1614736580182827188&wfr=spider&for=pc)
 
+[陕西汉中是中华系猕猴桃原产地和猕猴桃最佳适生区](https://www.pujiangmihoutao.com/36500.html)
+
 
 ***************************
 [城固禾和](http://hanzhong.hsw.cn/system/2019/0907/22935.shtml)
