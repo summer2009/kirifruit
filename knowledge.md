@@ -18,6 +18,8 @@
 
 [猕猴桃 现代诗哥](https://www.sohu.com/a/164547946_648626)
 
+[唐玄宗与岑参诗意里的太白山猕猴桃](http://bbs.hsw.cn/read-htm-tid-20129240-fpage-2.html)
+
 
 ***************************
 [城固禾和](http://hanzhong.hsw.cn/system/2019/0907/22935.shtml)
